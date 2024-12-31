@@ -20,8 +20,8 @@
 # 8. The Bucket List Hindi Series
 - [The Bucket List ](https://github.com/Royfield11/W/blob/main/Web-Serise/Ullu/8%20The%20Bucket%20List.md)
 
-#     Hindi Series
-- []()
+#   Ek Baar Aur Season 1 Part 1  (All Episode of part 1) Hindi Series
+- [Ek Baar Aur Season 1 Part 1](https://www.bitchute.com/video/zMlcJRDETpso/)
 
 #     Hindi Series
 - []()
