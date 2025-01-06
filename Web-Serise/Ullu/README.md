@@ -23,8 +23,8 @@
 # 9.  Ek Baar Aur Season 1 Part 1  (All Episode of part 1) Hindi Series
 - [Ek Baar Aur Season 1 Part 1](https://www.bitchute.com/video/zMlcJRDETpso/)
 
-#     Hindi Series
-- []()
+# 9. Takk ULLU WEB Series    Hindi Series
+- [Takk  ULLU WEB Series](https://github.com/Royfield11/W/blob/main/Web-Serise/Ullu/Takk%20ULLU%20WEB%20Series.md)
 
 #     Hindi Series
 - []()
