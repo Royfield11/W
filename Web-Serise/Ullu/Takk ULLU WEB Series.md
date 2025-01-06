@@ -9,7 +9,7 @@
 
 
 ## Takk Part 1 Episode 2 | ULLU WEB Series [Watch here](https://dai.ly/x9bv3fk)
-## ---------------------> Link 2 for Episode 2 [Watch here]()
+## ---------------------> Link 2 for Episode 2 [Watch here](https://www.bitchute.com/video/7kaFD0eWUPwo/)
 
 
 
