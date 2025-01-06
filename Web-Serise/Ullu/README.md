@@ -26,8 +26,8 @@
 # 9. Takk ULLU WEB Series    Hindi Series
 - [Takk  ULLU WEB Series](https://github.com/Royfield11/W/blob/main/Web-Serise/Ullu/9.%20Takk%20ULLU%20WEB%20Series.md)
 
-#     Hindi Series
-- []()
+# 10. Teekhi Chutney Part 2 Episode 3 Hindi | ULLU WEB Series    Hindi Series
+- [Teekhi Chutney ULLU WEB Series](https://github.com/Royfield11/W/blob/main/Web-Serise/Ullu/10%20Teekhi%20Chutney%20Hindi%20ULLU%20WEB%20Series.md)
 
 #     Hindi Series
 #     Hindi Series
